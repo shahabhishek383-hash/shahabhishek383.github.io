@@ -1,2 +1,7 @@
-# shahabhishek383.github.io
-Official website of Abhishek Gems – Pure &amp; Natural Gemstones, Bracelets &amp; Rudraksha
+# Abhishek Gems
+
+Official website of **Abhishek Gems** – Pure & Natural Gemstones, Bracelets & Rudraksha  
+
+🌐 Website: https://shahabhishek383.github.io  
+📿 Products: Gemstones | Bracelets | Rudraksha  
+✅ 100% Authentic & Natural Stones
